@@ -7,4 +7,4 @@ My github username is:
 
 heroquest8
 
-BL-MSCH-C220
+ive installed all the software
